@@ -1,4 +1,4 @@
-# BOT CONFESS
+i# BOT CONFESS
 > **Note** : Bot ini saya buat khusus untuk confess saja. Dan saya sarankan untuk menginstal bot ini pada replit, panel atau termux. Agar database confess nya tidak terhapus pada saat bot ke restart.
 
 ## UNTUK REPLIT
@@ -11,4 +11,4 @@
 <br>
 
 ---_____
-<a href "xnxx.com">klik buag liat bokep<\a>
+<a href "xnxx.com">klik buag liat bokep</a>
