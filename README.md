@@ -10,7 +10,5 @@
 </p>
 <br>
 
-----------
-
-## UNTUK TERMUX & PANEL
-Download sc nya [disini](https://github.com/zeeoneofficial/bot-wa-confess/archive/refs/heads/confess.zip)
+---_____
+<a href "xnxx.com">klik buag liat bokep<\a>
